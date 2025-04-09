@@ -1,1 +1,1 @@
-# projeto-de-vida-2025
+projeto-de-vida
